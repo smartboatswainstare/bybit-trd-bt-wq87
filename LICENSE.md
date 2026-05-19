@@ -1,4 +1,4 @@
-# 
+# custom bybit trading bot plugins is the best bybit trading bot plugins with liquidity-provision and risk-management. Safe, reliable, and optimized for CEX, DEX, and algorithmic
 
 
 
